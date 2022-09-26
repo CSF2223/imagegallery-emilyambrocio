@@ -11,3 +11,10 @@ Crediting isn’t required, but linking back is greatly appreciated and allows i
   7. [Oahu Sunset]  Image by <a href="https://pixabay.com/users/michelle_raponi-165491/?utm_source=link-attribution&amp;utm_medium=referral&amp;utm_campaign=image&amp;utm_content=1034525">Michelle Raponi</a> from <a href="https://pixabay.com/?utm_source=link-attribution&amp;utm_medium=referral&amp;utm_campaign=image&amp;utm_content=1034525">Pixabay</a>
   8. [Kilauea Volcano]  Image by <a href="https://pixabay.com/users/tommygbeatty-6864859/?utm_source=link-attribution&amp;utm_medium=referral&amp;utm_campaign=image&amp;utm_content=3088675">Tommy Beatty</a> from <a href="https://pixabay.com/?utm_source=link-attribution&amp;utm_medium=referral&amp;utm_campaign=image&amp;utm_content=3088675">Pixabay</a>
   9. [Aloha]  Image by <a href="https://pixabay.com/users/bibianagonzalez-209869/?utm_source=link-attribution&amp;utm_medium=referral&amp;utm_campaign=image&amp;utm_content=305857">bibianagonzalez</a> from <a href="https://pixabay.com/?utm_source=link-attribution&amp;utm_medium=referral&amp;utm_campaign=image&amp;utm_content=305857">Pixabay</a>  
+
+
+
+
+
+
+Image by <a href="https://pixabay.com/users/graziebambino-1593455/?utm_source=link-attribution&amp;utm_medium=referral&amp;utm_campaign=image&amp;utm_content=2700190">leico imamura</a> from <a href="https://pixabay.com/?utm_source=link-attribution&amp;utm_medium=referral&amp;utm_campaign=image&amp;utm_content=2700190">Pixabay</a>
